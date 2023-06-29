@@ -1,0 +1,2 @@
+- [What it takes to become a top 1% PM | Ian McAllister (Uber, Amazon, Airbnb)](https://youtu.be/7gaPPrAd7nc)
+- [Lessons from working with 600+ YC startups | Gustaf Alströmer (Y Combinator, Airbnb)](https://youtu.be/ZoKLofsp8u0)
