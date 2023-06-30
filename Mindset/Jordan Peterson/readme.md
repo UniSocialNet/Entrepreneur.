@@ -1,0 +1,1 @@
+- [Core Beliefs and Mindsets for Success with Dr. Jordan Peterson](https://youtu.be/SbJe868Kw-c)
