@@ -1,0 +1,2 @@
+- [I'm sure you have questions..... - WAN Show May 19, 2023](https://youtu.be/ILBz-SBVg08)
+- [Today is My Last Day as CEO - WAN Show June 30, 2023](https://youtu.be/UMO52N2vfk0)
